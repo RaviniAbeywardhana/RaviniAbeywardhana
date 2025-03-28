@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @RaviniAbeywardhana
-- 👀 I’m interested in Agriculture based ICT
 - 🌱 I’m currently learning ICT
 
 
